@@ -1,0 +1,5 @@
+---
+tags:
+  - Region
+---
+The Kingdom of Vonnegut is the Largest by sheer mass and population, its King is known as one of the most revered Generals in the last war, that became king after marching his troops into the capital city. Where the bloated old king sat on his throne surrounded by slaves, and food while his citizens were starving. While the king sat on his comfortable throne his people died for the unnecessary wars that were started by the king. Wolfgang Schwarz publicly decapitated the old king and send each nation a peace treaty with a part of the old king's body attached to it. most nations excepted the treaty and gained a little bit of land this way, and the ones that didn't were swiftly outmanoeuvred and destroyed by the new King General of the Vonnegut Kingdom. After he was done cleaning up the mess that the last king left behind, he started to further invest in the living quality of every citizen of the common folk which granted him the utmost respect and gratitude by the people he governed.
